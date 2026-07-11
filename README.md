@@ -1,5 +1,4 @@
 # PT
-Hi! I'm Cee, any extra info will be on my patreon, which is linked in my bio under the spotify link.
 
 I do not ERP, so please don't ask me, I use the block button very freely and won't hestiate to remove you from my sight <3 I don't tend to RP either, unless I'm being silly, so don't talk to me in character because I most likely won't go along with it, depending on how I feel or unless you give context first.
 
